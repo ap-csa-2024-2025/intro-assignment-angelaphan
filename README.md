@@ -13,11 +13,10 @@
 
 ## About Me
 Answer the questions below
-* Something interesting about me is that I love eating ice
+* Something interesting about me is
 * Ask Mr. Vu anything:
-do you like pickes
 * List your sports and extracurriculars you participate in
-um...
+
 
 ## Poop
 * fart
