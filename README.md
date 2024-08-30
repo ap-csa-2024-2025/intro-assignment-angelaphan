@@ -15,9 +15,9 @@
 Answer the questions below
 * Something interesting about me is that I love eating ice
 * Ask Mr. Vu anything:
-- do you like pickes
+do you like pickes
 * List your sports and extracurriculars you participate in
-- um...
+um...
 
 ## Poop
 * fart
